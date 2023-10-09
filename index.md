@@ -14,12 +14,12 @@ Valorisation des données
 Déploiment d'une ressourcerie numérique
 Participation à la demarche d'idéation participative 
 - **2023:**Stage 2 mois - Chargée de communication chez Sekbat construction
-Création de la charte éditorial 
-Gestion des réseaux sociaux ( Linkedin et Facebook)
-Veille concurrentielle 
-Valorisation des fonds 
-Création du site Web 
-Création graphique Book et magazines
+          Création de la charte éditorial 
+          Gestion des réseaux sociaux ( Linkedin et Facebook)
+          Veille concurrentielle 
+          Valorisation des fonds 
+          Création du site Web 
+          Création graphique Book et magazines
 - **2022:**Stage 4 semaines - community manager | Azeon Conseil
 Création et envoi des newsletters 
 Elaboration d'une politique de communication sur les réseaux sociaux 
