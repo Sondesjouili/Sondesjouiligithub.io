@@ -8,11 +8,12 @@ Actuellement étudiante en BUT 3ème année au sein de l'IUT Bordeaux Montaigne.
 - **2020:** Baccalauréat Général Mention Bien
   
 ## Expériences professionnelles
-- **2023-2024:** Alternance d'un 1 an chez l'Urssaf en tant que changée de l'innovation et de l'information
--Animation d'ateliers de sensibilisation sur la data et l'open data
--Valorisation des données
--Déploiment d'une ressourcerie numérique
--Participation à la demarche d'idéation participative 
+- **2023-2024:**
+Alternance d'un 1 an chez l'Urssaf en tant que changée de l'innovation et de l'information
+    -Animation d'ateliers de sensibilisation sur la data et l'open data
+    -Valorisation des données
+    -Déploiment d'une ressourcerie numérique
+    -Participation à la demarche d'idéation participative 
 - **2023:** Stage 2 mois - Chargée de communication chez Sekbat construction
 - Création de la charte éditorial 
 - Gestion des réseaux sociaux ( Linkedin et Facebook)
