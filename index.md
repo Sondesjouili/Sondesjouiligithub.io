@@ -37,3 +37,7 @@ Création de graphisme Print et Web
 - Valorisation de l'information 
 - Veille opérationnelle
 - Autonomie
+
+## Contact
+- Email: jouilisondes16@gmail.com
+- LinkedIn: [Mon LinkedIn](linkedin.com/in/sondes-jouili-818043205)
