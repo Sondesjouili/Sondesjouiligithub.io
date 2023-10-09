@@ -5,7 +5,7 @@ Actuellement étudiante en BUT 3ème année au sein de l'IUT Bordeaux Montaigne.
 
 ## Formation
 - **2021- 2024:** But- Information Numérique dans les Organisations 
-- **2020:**Baccalauréat Général Mention Bien
+- **2020:** Baccalauréat Général Mention Bien
   
 ## Expériences professionnelles
 - **2023-2024:** Alternance d'un 1 an chez l'Urssaf en tant que changée de l'innovation et de l'information
