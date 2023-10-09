@@ -41,3 +41,4 @@ Création de graphisme Print et Web
 ## Contact
 - Email: jouilisondes16@gmail.com
 - LinkedIn: [Mon LinkedIn](https://www.linkedin.com/in/sondes-jouili-818043205/)
+- Télephone : 06 62 21 68 63
