@@ -9,24 +9,24 @@ Actuellement étudiante en BUT 3ème année au sein de l'IUT Bordeaux Montaigne.
   
 ## Expériences professionnelles
 - **2023-2024:** Alternance d'un 1 an chez l'Urssaf en tant que changée de l'innovation et de l'information
-Animation d'ateliers de sensibilisation sur la data et l'open data
-Valorisation des données
-Déploiment d'une ressourcerie numérique
-Participation à la demarche d'idéation participative 
+-Animation d'ateliers de sensibilisation sur la data et l'open data
+-Valorisation des données
+-Déploiment d'une ressourcerie numérique
+-Participation à la demarche d'idéation participative 
 - **2023:** Stage 2 mois - Chargée de communication chez Sekbat construction
-          Création de la charte éditorial 
-          Gestion des réseaux sociaux ( Linkedin et Facebook)
-          Veille concurrentielle 
-          Valorisation des fonds 
-          Création du site Web 
-          Création graphique Book et magazines
+         - Création de la charte éditorial 
+         - Gestion des réseaux sociaux ( Linkedin et Facebook)
+         - Veille concurrentielle 
+         - Valorisation des fonds 
+         - Création du site Web 
+         - Création graphique Book et magazines
 - **2022:** Stage 4 semaines - community manager | Azeon Conseil
-Création et envoi des newsletters 
-Elaboration d'une politique de communication sur les réseaux sociaux 
-Animer la communauté sur Instagram et Facebook
-Gestion des ressources documentaires 
-Gestion d'un site e-commerce 
-Création de graphisme Print et Web
+-Création et envoi des newsletters 
+-Elaboration d'une politique de communication sur les réseaux sociaux 
+-Animer la communauté sur Instagram et Facebook
+-Gestion des ressources documentaires 
+-Gestion d'un site e-commerce 
+-Création de graphisme Print et Web
 
 
 ## Compétences
